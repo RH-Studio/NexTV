@@ -1,3 +1,3 @@
-Kunjungi linktree resmi kami di :
+Kunjungi linktr.ee resmi kami di :
 
 https://linktr.ee/rhstudio.id
