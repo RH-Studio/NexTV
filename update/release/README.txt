@@ -1,1 +1,1 @@
-NexTV Versi 1.0.0
+NexTV Versi 1.0.0 [Progress]
